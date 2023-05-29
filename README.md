@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+
+![](https://thumbs.gfycat.com/MemorableBetterCockroach-size_restricted.gif)
+
+
 <!--
 **YerikSharkUDD/YerikSharkUDD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
